@@ -1,1 +1,1 @@
-Block Blast mobile game in your browser. Optimized for speed and storage. You can play it here - http://algebrahelp1900s.com/
+Play Block Blast today in your browser unblocked! - http://algebrahelp1900s.com/
