@@ -1,1 +1,1 @@
-Play Block Blast today in your browser unblocked! - http://algebrahelp1900s.com/
+Unblocked Block Blast in your browser - http://algebrahelp1900s.com/
